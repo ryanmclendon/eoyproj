@@ -1,4 +1,4 @@
-# eoyproj
+# EoYProject!
 
 bruh
 
